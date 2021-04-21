@@ -1,0 +1,3 @@
+# rickrollWindows
+hehehehehehehehehehehhehehehehehehehehehehhehehehehehehehehehhehehehehehhhehehehehehhehehehehe
+Just extract the zip file and open the batch file
